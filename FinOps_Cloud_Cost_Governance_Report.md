@@ -6,7 +6,7 @@ Submitted in partial fulfilment of the requirements for the award of the degree 
 
 **Submitted by:**
 - Muskan Bandta — 2210991947
-- Riya — 221099734
+- Riya — 2210990734
 - Parisha — 2210992023
 
 **Supervised By:** Preeti Saini, Mentor, Chitkara University
